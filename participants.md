@@ -2,6 +2,6 @@
 
 Shaun Mahony - Assistant Professor, Biochemistry & Molecular Biology
 
-Imhoi Koo - Research Associate, Huck Institutes of Life Sciences 
-![](https://images-na.ssl-images-amazon.com/images/M/MV5BNzIwNjk1NTMwMF5BMl5BanBnXkFtZTcwNDgyNjMzNA@@._V1_.jpg){width=50%}
+Imhoi Koo - Research Associate, Huck Institutes of Life Sciences :+1:
+![](https://images-na.ssl-images-amazon.com/images/M/MV5BNzIwNjk1NTMwMF5BMl5BanBnXkFtZTcwNDgyNjMzNA@@._V1_.jpg | width=100){width=50%}
 
